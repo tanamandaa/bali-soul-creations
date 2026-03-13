@@ -1,4 +1,4 @@
-# Bali Soul Creations - Handmade Balinese Craft
+# Bali Soul Creations
 **Developed by: Ni Kadek Intan Amanda Putri**
 **NIM: 230030308**
 
